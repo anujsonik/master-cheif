@@ -1,0 +1,8 @@
+1) flour (4 cups)
+2) eggs (4)
+3) milk (0.5 Lt)
+4) coaco powder (1 cup)
+5) sugar (1cup)
+6) butter/oil (3/4 cup)
+7) baking powder (1 tbs)
+8) baking soda (1 tbs)
